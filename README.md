@@ -7,7 +7,7 @@
 
 - 📫 Pode me contatar aqui **victorassuncao622@gmail.com**
 
-- 📄 Estudante de ADS na Uninassau, Analista de Dados [www.linkedin.com/in/marcos-victor-assuncao-de-carvalho-4a8bb12b1](www.linkedin.com/in/marcos-victor-assuncao-de-carvalho-4a8bb12b1)
+- 📄 Estudante de ADS na Uninassau, Analista de Dados 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
